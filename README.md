@@ -1,8 +1,8 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀　⠀⠀⠀⠀⠀⠀⠀<sup>⠀firing your synapses　</sup>
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀　⠀⠀⠀⠀⠀⠀⠀<sup>⠀i'm ringing like an empty bell 　</sup>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://github.com/user-attachments/assets/a12d8a29-169a-4162-b289-6077a045cabf" width="400" height="150"/>
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://github.com/user-attachments/assets/e3bb9c4e-da34-4347-b974-7791f5f26fb7" width="400" height="200"/>
 ⠀⠀⠀⠀⠀　　　⠀⠀<sup>dazai　　he　/　it</sup>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-<br/>⠀⠀⠀⠀⠀⠀⠀⠀　⠀⠀<sup>⠀how did it come back to this </sup>
+<br/>⠀⠀⠀⠀⠀⠀⠀⠀　⠀⠀<sup>⠀like I'm about to kill myself　x_^</sup>
 
 ⠀⠀⠀⠀⠀

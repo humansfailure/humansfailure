@@ -1,4 +1,4 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<sup>⠀do i creep you out, 　</sup>
+<sup>⠀do i creep you out, 　</sup>
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://github.com/user-attachments/assets/cc355d50-2ca2-44b0-8d55-7e677295a887" width="400" height="200"/>
 

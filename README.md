@@ -1,9 +1,9 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀　⠀⠀⠀⠀⠀⠀⠀<sup>⠀i'm ringing like an empty bell 　</sup>
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<sup>⠀do i creep you out, 　</sup>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://github.com/user-attachments/assets/e3bb9c4e-da34-4347-b974-7791f5f26fb7" width="400" height="260"/>
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://github.com/user-attachments/assets/cc355d50-2ca2-44b0-8d55-7e677295a887" width="400" height="200"/>
 
-⠀⠀⠀⠀⠀　　　　　　　　　　　　　⠀⠀<sup>dazai　　he　/　it</sup>
+⠀⠀⠀⠀⠀⠀⠀<sup>whisper⠀⠀c+h⠀⠀mostly afk</sup>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-<br/>⠀⠀⠀⠀⠀⠀⠀⠀　⠀⠀<sup>⠀like I'm about to kill myself　^_^</sup>
+<br/>⠀⠀⠀⠀⠀⠀⠀⠀　⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<sup>⠀do i creep you out?</sup>
 
-⠀⠀⠀⠀⠀
+⠀⠀
